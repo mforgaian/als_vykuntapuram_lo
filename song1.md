@@ -24,3 +24,9 @@ Samajavaragamana
 Ninu choosi aga galana
 Manasu meeda vayasukunna
 Adupu cheppa thaguna
+
+
+Samajavaragamana
+Ninu choosi aga galana
+Manasu meeda vayasukunna
+Adupu cheppa thaguna
