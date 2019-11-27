@@ -24,3 +24,9 @@ Samajavaragamana
 Ninu choosi aga galana
 Manasu meeda vayasukunna
 Adupu cheppa thaguna
+
+
+Nee kallani pattuku vadalanannavi
+Choode na kallu
+a choopulanalla thokkuku vellaku
+Dayaledha asalu
