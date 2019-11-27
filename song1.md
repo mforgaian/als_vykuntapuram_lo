@@ -18,3 +18,9 @@ Na oopiri galiki
 Uyyalalooguthu unte mungurulu
 Nuvvu nettesthe nittoorchavatte
 Nishtoorapu vilavlalu
+
+
+Samajavaragamana
+Ninu choosi aga galana
+Manasu meeda vayasukunna
+Adupu cheppa thaguna
